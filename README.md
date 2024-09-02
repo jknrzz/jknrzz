@@ -1,0 +1,5 @@
+- 👋 Hi, I’m shahzoda
+- 👀 I’m interested in being software developer, korea & bangtan
+- 🌱 I’m currently learning english
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: broken peoples smile a lot...)        
